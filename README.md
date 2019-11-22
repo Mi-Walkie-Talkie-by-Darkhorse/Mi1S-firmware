@@ -1,0 +1,1 @@
+# Xiaomi Mi Walkie Talkie 1S (MJDJJ03FY) firmware
